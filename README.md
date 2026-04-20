@@ -20,3 +20,4 @@ Co do tych afer to można też zgłosić to ludzkie szambo tych firm i fundacji 
 https://www.fbi.gov/investigate. Można się ich zaptać czy nie czasem są to afery ludzkiego szmba do wywozu przez firmy do obróbki odpadów komunalnych jakimi są ci ludzie co zabierają wygrane w lotto czy wysokie wypłąty za prace.  
 Jeśli chodzi o te kobiety co kłucą sę o alimnty i dziecko do 1 poczęcia czy rozwód to te samotne matki też są z szamba na bio paliwa. 
 Ci co palą papierosy też są z szamba na bio paliwa. 
+Wszystkie samotne mamy co wzieły rozwód są ze szamba do przelewaia do większego zbiornika z szambem. Bo one to szambo jest. 
