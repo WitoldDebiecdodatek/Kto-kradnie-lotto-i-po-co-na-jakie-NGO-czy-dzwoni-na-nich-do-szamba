@@ -6,3 +6,4 @@ Na tych złodzieji najlepiej zadzwonić na kutasowo do strefy 51 lub sari to ich
 To NGO zabiera 4 zł na NGO fundacja puszka i losowania są nici. 
 Ci z NGO to mosad żydowski z Izraela ich powował aby nikt nie szukał po za krajem miłości dlatego oni im zabierają pieniadze i odaja je na chore dzieci. 
 Te afery game over to Bezpieka i cypiton i kali linux oni zmieniają i restują maszyny do losowania lotto zdalnie wirusem. 
+Wywiozą ich na taczce jak pijanego Niuśka. 
