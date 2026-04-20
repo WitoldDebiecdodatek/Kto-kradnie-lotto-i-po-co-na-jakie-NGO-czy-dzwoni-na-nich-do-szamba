@@ -1,0 +1,1 @@
+# Kto-kradnie-lotto-i-po-co-na-jakie-NGO-czy-dzwoni-na-nich-do-szamba
