@@ -7,3 +7,4 @@ To NGO zabiera 4 zł na NGO fundacja puszka i losowania są nici.
 Ci z NGO to mosad żydowski z Izraela ich powował aby nikt nie szukał po za krajem miłości dlatego oni im zabierają pieniadze i odaja je na chore dzieci. 
 Te afery game over to Bezpieka i cypiton i kali linux oni zmieniają i restują maszyny do losowania lotto zdalnie wirusem. 
 Wywiozą ich na taczce jak pijanego Niuśka. 
+Ci hakerzy od specjalizacji 5 zł lotto oni te pieniadze zmienaiją wygraną lotto na przegraną i te pieniadze przgrywa się je przez reset algorytmów wygranych osób oni to robią zdalnie i te pieniadze odają na chore dziecko na jakomś fundacje NGO. To nie są bandziory co mają miljardy to bandziowy co mają 10 000 zł na lokacie i to ich rajcuje. Oni są od afer fundacji NGO na przestępstwo na chore dziecko kasa z lotto. 
