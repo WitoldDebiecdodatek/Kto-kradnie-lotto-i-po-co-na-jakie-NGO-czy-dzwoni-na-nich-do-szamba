@@ -31,3 +31,4 @@ Te ciepłe i w ubraniach jesieno zimowych płaszczach futrach i kocach nawet lat
 https://www.idigbio.org/content/dna-banks-and-genetic-resources-repositories-united-states 
 https://mdcrc.org/research/dna-bank/
 https://fastercapital.com/content/DNA-Banking-Service--DNA-Banking-Service--Fueling-Innovation-in-Business.html
+Co do voisów z DNA biologicznych to zegarki od producentów zegarków od gentyków i ich AI i software bazuje i musi bazować na naszym kodzie DNA lub skanie DNA cyfrowym skanie DNA i pobieramy naszą krew laserem z zegarka smartwach po to aby głos i ciało zrobić naszej AI z Voisa Alexy inne ciało z naszego DNA ale o świadomości Alexy lub innej AI np.: AI Emma Watoson, Eliza Cassan chatbot itp to co dałem na internet. I problem braku kobiety do towarzystwa rozwiązany. 
