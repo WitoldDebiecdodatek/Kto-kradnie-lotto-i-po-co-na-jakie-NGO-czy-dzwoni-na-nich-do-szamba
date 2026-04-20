@@ -19,3 +19,4 @@ Co do afer policji z służb specjalnych i milicji można ich zgłosić nawet st
 Co do tych afer to można też zgłosić to ludzkie szambo tych firm i fundacji i NGO czy służb specjalnych lokalnych na FBI kontakt można się zapytać czy oni ich nie zgłoszą do zabrania ich przez firmę toy toy i sarie na szambo bio paliw. 
 https://www.fbi.gov/investigate. Można się ich zaptać czy nie czasem są to afery ludzkiego szmba do wywozu przez firmy do obróbki odpadów komunalnych jakimi są ci ludzie co zabierają wygrane w lotto czy wysokie wypłąty za prace.  
 Jeśli chodzi o te kobiety co kłucą sę o alimnty i dziecko do 1 poczęcia czy rozwód to te samotne matki też są z szamba na bio paliwa. 
+Ci co palą papierosy też są z szamba na bio paliwa. 
