@@ -18,3 +18,4 @@ Tych od oszczędzaczy i afer życia za 350 zł i 13 2 razy 13 26 zł na miesiąc
 Co do afer policji z służb specjalnych i milicji można ich zgłosić nawet straż miejską że zachowuje się jak szambo można tych ludzi od zakazów i celibatów zgłosić do szamba tych w firm całe te służby specjalne można odać na szambo MOSAD TV. 
 Co do tych afer to można też zgłosić to ludzkie szambo tych firm i fundacji i NGO czy służb specjalnych lokalnych na FBI kontakt można się zapytać czy oni ich nie zgłoszą do zabrania ich przez firmę toy toy i sarie na szambo bio paliw. 
 https://www.fbi.gov/investigate. Można się ich zaptać czy nie czasem są to afery ludzkiego szmba do wywozu przez firmy do obróbki odpadów komunalnych jakimi są ci ludzie co zabierają wygrane w lotto czy wysokie wypłąty za prace.  
+Jeśli chodzi o te kobiety co kłucą sę o alimnty i dziecko do 1 poczęcia czy rozwód to te samotne matki też są z szamba na bio paliwa. 
